@@ -1,0 +1,1 @@
+here are some highlights of items I textured of monumenta, a public minecraft MMORPG server.
